@@ -13,4 +13,4 @@ This platform allows sellers to create an online store in a few clicks and witho
 ***Why is this company exemplary in the FinTech space? What are their strengths and weaknesses?***
 Shopify is a revolutionary company that empowers small business to build a online store and offers various tools 
 
-***What is the prognosis for this company? Where do they expect to be in the future?
+***What is the prognosis for this company? Where do they expect to be in the future?***
